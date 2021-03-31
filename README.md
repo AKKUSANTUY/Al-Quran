@@ -8,7 +8,7 @@ BACA AL-QUR'AN SETIAP SAAT DAN JANGAN LUPA ISTIGHFAR CUK
 =========================================================
 [!] Author     : SANTRI CYBER SANTUY
 [!] Instagram  : @Akku_Santuy
-[!] WhatApp    : +6288221708799
+[!] WhatApp    : +6282134566596
 [!] Facebook   : https://www.facebook.com/SANTRI.CYBER.CUK
 [!] thanks to  : Allah SWT,My Parents,Litequran.net, And You :)
 =========================================================
